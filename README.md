@@ -3,7 +3,7 @@
 
 - Aku tengah mengerjakan: [hadits](https://hadits.vercel.app)
 
-- 🌱 Aku sedang belajar: **Menggambar, Koding, `ngendru`**
+- 🌱 Aku sedang belajar: **Menggambar, Koding, `witir (wibu amatir)`**
 
 - 💬 Tanyakan aku tentang: **Seni kejombloan, Orang tak perlu ganteng**
 
